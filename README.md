@@ -1,4 +1,4 @@
-## Hi there 👋
+##  I haven't done much yet. But I will.
 
 <!--
 **MonJack0410/MonJack0410** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
